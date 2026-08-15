@@ -6,7 +6,7 @@ insights. With a background in Digital Marketing
 
 For more contact
 
-sasicotton.github.io
+[sasicotton.github.io](https://sasicotton.com/)
 
 Linkedin.com/sasicotton
 
