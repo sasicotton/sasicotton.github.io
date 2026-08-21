@@ -8,7 +8,7 @@ For more contact
 
 **My portfolio website** [sasicotton.com](www.sasicotton.com)
 
-**Linkedin** [sasicotton] (www.linkedin.com/sasicotton)
+**Linkedin** [sasicotton](www.linkedin.com/sasicotton)
 
 **Email** [sasi.cotton@gmail.com]
 
