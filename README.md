@@ -6,9 +6,9 @@ insights. With a background in Digital Marketing
 
 For more contact
 
-sasicotton.com
+**My portfolio website** [sasicotton.com](www.sasicotton.com)
 
-Linkedin.com/sasicotton
+**Linkedin** [sasicotton] (www.linkedin.com/sasicotton)
 
-sasi.cotton@gmail.com
+**Email** [sasi.cotton@gmail.com]
 
